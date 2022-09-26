@@ -14,7 +14,7 @@ creation.
 
 ## In Below is The Video Presentation for Placing Order in Daraz where my personal Daraz account is used.
 
-### Video Link :  [Daraz Order Place](https://drive.google.com/file/d/10hbrb7fPovJzUjC55am-2mczPJ6SO6QJ/view?usp=sharing)
+### Video Demonstration :  [Daraz Order Place](https://drive.google.com/file/d/10hbrb7fPovJzUjC55am-2mczPJ6SO6QJ/view?usp=sharing)
 
 
 
